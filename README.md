@@ -1,1 +1,1 @@
-Download APK: https://www.mediafire.com/file/2p3vhz7cydra654/lumascan.apk/file
+Download APK: https://www.mediafire.com/file/i10qqvhd8atlgxh/lumascan.apk/file
