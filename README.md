@@ -6,4 +6,4 @@ Update APK LuMa Scanner :
 
 https://www.mediafire.com/file/l0em97yvlpryn31/lumascan-update-v1.2.3.apk/file
 
-https://www.mediafire.com/file/for3v6snfh6qpmg/lumascan-update-v1.2.4.apk/file
+https://www.mediafire.com/file/ubrs4boec60co17/lumascan-update-v1.2.4.apk/file
